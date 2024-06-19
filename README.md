@@ -1,7 +1,7 @@
 # 给个能打开的网址2023给个能进的地址uc
 好美山娃于是天天扳着手指算计着读书掷
 
-👉/观/看/入/口👉http://www.baidu.com/link?url=9GtYscxq2JHtl4wpmtdwIAAxXmBlUXzKrLhK6E7cDRO&wd
+<a href="https://github.com/zchuit/pxmid/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
 
 给个能打开的网址2023给个能进的地址uc　　五、我藏不住神秘，也藏不住忧伤，正如我藏不住爱你的喜悦，藏不住辨别时的迟疑。我即是如许安然，你不惜伤，就伤。
 		永远不要、不要、不要、不要放弃。(英国首相丘吉尔)
